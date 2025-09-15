@@ -1,1 +1,0 @@
-# bluestock_project1
